@@ -1,4 +1,2 @@
 # sis
-just for knowledge
-hjk
-jkjk
+just for
