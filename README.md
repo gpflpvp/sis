@@ -1,4 +1,2 @@
 # Tell me about yourself 
-My name is ladyprincess v. pan 
-i am 18years old 
-malabon city
+My name is Lady Princess V. Pan. I'am 17 years old, from malabon city.
